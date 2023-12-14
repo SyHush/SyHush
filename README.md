@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SyHush
+- 👋 Hi, I’m @Anzy.Sy
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning to Code
 - 💞️ I’m looking to collaborate on Anything 
